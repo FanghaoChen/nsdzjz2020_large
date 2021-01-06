@@ -1,7 +1,7 @@
 ## 中经专论文成绩及链接
 
 
-点击[这里](https://shimo.im/sheets/PgqPDyJGQtXYHg6D/MODOC)修改成绩
+点击[这里](https://shimo.im/sheets/X8kKpYVrRcCQWj8v/MODOC)修改成绩
 
 [分数:81.5-学号:W19194195](./论文/课程小论文_w19194195_尝试_2020-12-18-23-37-37_中经专2020-课程小论文-罗轩仪-W19194195.pdf)
 
